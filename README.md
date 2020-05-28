@@ -1,6 +1,6 @@
 # digest
 
-# интересные посты пр оавтомобильную электронику
+# интересные посты про автомобильную электронику
 
 Планшет в авто https://bortovoj-computer.ru/podklyuchenie-plansheta-android-v-avtomobile/
 
