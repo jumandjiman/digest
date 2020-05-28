@@ -1,19 +1,19 @@
 # digest
 
-# интересные посты
+# интересные посты пр оавтомобильную электронику
 
-Лучшие сервисы для крауд маркетинга https://bizzapps.ru/b/rating-crowd-marketing/
+Планшет в авто https://bortovoj-computer.ru/podklyuchenie-plansheta-android-v-avtomobile/
 
-low code https://bizzapps.ru/b/low-code/
+Ошибка dtc b1018 lada https://bortovoj-computer.ru/kody-oshibok-dopolnitelnye-sistemy-vaz-gaz-uaz-2/
 
-Разница между программистами https://bizzapps.ru/b/raznitsa-mezhdu-programmistami-senior-middle-junior/
+бортовой компьютер 2114 https://bortovoj-computer.ru/shtatnyj-bortovoj-kompyuter-vaz-2113-2114-2115-oboznacheniya-instrukciya/
 
-# интересные сервисы и приложения для бизнеса
+# интересные сервисы и приложения для автомобиля
 
-Зум https://bizzapps.ru/p/zoom/
+бортовой компьютер ваз 2110 обозначения https://bortovoj-computer.ru/bortovoj-kompyuter-vaz-2110-oboznachenie-znachkov/
 
-Яндекс Почта https://bizzapps.ru/p/yandex-pochta/
+бортовой компьютер лада гранта https://bortovoj-computer.ru/lada-granta/
 
-ВордСтат https://bizzapps.ru/p/wordstat-yandex/
+бортовой компьютер лачетти https://bortovoj-computer.ru/lacetti/
 
-Викс конструктор сайтов https://bizzapps.ru/p/wix/
+
